@@ -25,11 +25,11 @@ Harry groaned. So done.
 
 "Nothing, nothing..."
 
-Dudley's bday - how could he have forgotten? Harry slowly unstuck himself from his bed and started hunting for socks. He found a pair under his bed and, after yoinking  a spider off one of them, put them on. Harry was used to spiders, because the dusty ass cupboard under the stairs was full of them, and that was his zone.
+Dudley's bday - how could he have forgotten? Harry slowly unstuck himself from his bed and started hunting for socks. He found a pair under his bed and, after yoinking  a spider off one of them, put them on. Harry was chill with spiders, cuz the dusty ass cupboard under the stairs was full of them, and that was his zone.
 
-Once clothed he skirted his way down the hall into the kitchen. The table was smol beneath all Dudley's bday gifts. It looked as though Dudley had gotten the new chromebook he wanted, not to mention the second television and the racing bike. Harry was confusion as to why Dudley wanted a racing bike, as Dudley was a big heckin' chonker and hated gains - unless of course it involved throwing hands. Dudley's fave punching bag was Harry, but he couldn't often catch him. Harry didn't look it, but he was speedy af.
+Once clothed he skirted his way down the hall into the kitchen. The table was smol beneath all Dudley's bday gifts. It looked as though Dudley had gotten the new chromebook he wanted, not to mention the Sony - 85" Class BRAVIA XR Z9K 8K HDR Mini LED Google TV and the racing bike. Harry was confusion as to why Dudley wanted a racing bike, as Dudley was a big heckin' chonker and hated gains - unless of course it involved throwing hands. Dudley's fave punching bag was Harry, but he couldn't often catch him. Harry didn't look it, but he was speedy af.
 
-Prolly had something to do with living in a dutty cupboard, but Harry had always been smol and scrawny for his age. He looked the farthest from swole because all his fits were second hand clothes of Dudley's, and Dudley was fourish times as thicc as him. Harry has a gangly face, knobbly knees, black hair and bright green eyes (like Harry Styles). He wore circle glasses held together with a lot of Scotch tape bc of all the times he had caught Dudley's hands with his face. The only thing Harry liked about his lewk was a very thin scar on his forehead that was shaped like a bolt of lightning. He had had it as long as he could remember and thought is gave main charater energy. Since his life was uninteresting asf the first question he could ever remember asking his Aunt Petunia was how he had gotten it.
+Prolly had something to do with living in a dutty cupboard, but Harry had always been smol and scrawny for his age. He looked the farthest from swole because all his fits were second hand clothes of Dudley's, and Dudley was fourish times as thicc as him. Harry has a gangly face, knobbly knees, black hair and bright green eyes (like Harry Styles). He wore circle glasses held together with a lot of Scotch tape bc of all the times he had caught Dudley's hands with his face. The only thing Harry liked about his lewk was a very thin scar on his forehead that was shaped like a bolt of lightning. He had had it as long as he could remember and thought it gave main charater energy. Since his life was uninteresting asf the first question he could ever remember asking his Aunt Petunia was how he had gotten it.
 
 "When your parents wrecked their whip and unalived." she had said. "And don't be askin questions."
 
@@ -97,7 +97,7 @@ Dudley began to wail. Fact, he wasn't really crying - it had been literally fore
 
 "Diny Duddydums, don't cry. Mummy won't let him unbomb your bomb diggity day!" she cried, flinging her arms around him. 
 
-"I ... don't... want... him... t-t-to come!" Dudley gasped for air between huge, pretend sobs. "He always sp-spoils everything!" He shot Harry a narsty grin through the gap in his mother's arms. 
+"I ... don't... want... him... t-t-to come!" Dudley started bawling. "He fucks up everything!" He shot Harry a narsty grin through the gap in his mother's arms. 
 
 Just then, the ding-dong rang - "Oh, for fucksake, they're here!" said Aunt Petunia frantically - and a sec later, Dudley's bff, Piers Polkiss, walked in with his mom. Piers was a scrawny boi with a face like a rat. He was usually the one who held people's arms behind their backs while Dudley cashed them outside. Dudley stopped bullshitting crying at once.
 
@@ -173,7 +173,7 @@ Boa Constrictor, Brazil
 
 "Damn was it gucci there?"
 
-The nope rope jabbed its tail again and Harry read on: This specimen's parents were shipped and was born in the zoo. "Oh shit, I get u-- so you've neva been to Brazil."
+The nope rope jabbed its tail again and Harry read on: This noodle's parents were immigrants. "Oh shit, I get u-- so you've neva been to Brazil."
 
 As the snek zigged its head, a loud ass shout behind Harry snatched both of their wigs. "DUDLEY! MR.DURSLEY! COME AND COP A LOOK A THIS SNEK! YOU'LL BE TRIPPIN' WIT WHAT THIS SNEK IS DOING." 
 
@@ -197,6 +197,6 @@ Harry lay in his mid cupboard forever, manifesting he had a watch. He couldn't s
 
 He'd been thug lifing with the Dursleys almost ten years, ten trash ass years, as long as he could rember, ever since he'd bin a bb and his parentals had unalived in a car crash. He had no memories of being in the whip. Sometimes, he big brained up a sus reality: a flashy flash of green light and a burnning pain on his forebead. This, he supposed, was the crash, though it made not fuckin sense for a green light to be involved. He couldn't remember shit abt his parents. His aunt and uncle neva gossed abt them, and ofc he was gatekeeped from asking questions. There were no pics of them in the crib. 
 
-When he had been a youngin, Harry had manifested of some unknown relation shownin up and snatchin him away, but it never happened; the Dursley were his only fam. Yet sometimes he thought (more like manfested) that randoms in the street seemed to know him. Very sus randoms too. A lil man in a violet top hat had bowed to him once while out shopping with AUnt Petunia and Dudley. After interogating Harry if he knew the man, Aunt Petunia had yeeted them out of the shop without buying anything. A crackhead looking old women drippin in all green had waved merrily at him on a bus. A cueball man in a v long purple coat had actually shaken his hanf in the street the other day and then dipped without a word. The susest thing about all these people was the way they seemed to vanish the sec Harry tried to get a closer look. 
+When he had been a youngin, Harry had manifested of some unknown relation shownin up and snatchin him away, but it never happened; the Dursley were his only fam. Yet sometimes he thought (more like manfested) that randoms in the street seemed to know him. Very sus randoms too. A lil man in a violet top hat had bowed to him once while out shopping with Aunt Petunia and Dudley. After interogating Harry if he knew the man, Aunt Petunia had yeeted them out of the shop without buying anything. A crackhead looking old woman drippin in all green had waved merrily at him on a bus. A cueball man in a v long purple coat had actually shaken his hanf in the street the other day and then dipped without a word. The susest thing about all these people was the way they seemed to vanish the sec Harry tried to get a closer look. 
 
 At school, Harry had no homies. Everyone knew that Dudly's gang hated that odd Harry Potter in his baggy ass old clothes and broken glasses, and nobody finna disagreed wit Dudley's gang. 
